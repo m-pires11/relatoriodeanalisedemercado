@@ -1,0 +1,2 @@
+# relatoriodeanalisedemercado
+Link do Relatório
